@@ -1,4 +1,4 @@
-# Olá! 👋 Eu sou a Letícia Bacellar
+# Olá! 👋 Eu sou a Leticia Bacellar
 
 Sou Analista de Dados e estudante de Sistemas de Informação, apaixonada por transformar dados em insights valiosos para decisões estratégicas. Tenho foco em análise de dados, BI e também estou me aprofundando em engenharia de dados e tecnologias emergentes para ampliar minhas habilidades.
 

@@ -95,7 +95,7 @@ Sou Analista de Dados e formada em Sistemas de Informação, apaixonada por tran
 
 ## Contato
 
-- 📫 leticia.bacellar@email.com  
+- 📫 leticiabacellar13@gmail.com  
 - 🔗 [LinkedIn](https://www.linkedin.com/in/leticia-bacellar-96a568205/)   
 - 💼 [Portfolio](https://sites.google.com/view/portifolio-da-leticia-bacellar/in%C3%ADcio?authuser=1)  
 
